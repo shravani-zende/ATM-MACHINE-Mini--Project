@@ -52,7 +52,7 @@ Rs. 5000.00
 
 Your Name
 
-GitHub: https://github.com/your-shravani-zende
+GitHub: (https://github.com/shravani-zende)
 
 ---
 
